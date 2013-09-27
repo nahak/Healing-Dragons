@@ -1,4 +1,4 @@
-Healing-Dragons
+Healing Dragons
 =========
 Healing Dragons are creators and marketers of unique herbal products and herbal teas.
 Home page for Vog Buster Tea-relief from wildfire smoke, Aunty Oxidant Tea for everyday use,
